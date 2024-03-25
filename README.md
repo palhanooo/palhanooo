@@ -1,4 +1,9 @@
-### Hi there 👋
+![imagem](https://www.icegif.com/wp-content/uploads/2023/03/icegif-1393.gif)
+
+
+
+
+### ai ai
 
 <!--
 **palhanooo/palhanooo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
